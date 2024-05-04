@@ -1,5 +1,5 @@
 ---
-title: Session 1 and 2
+title: Session 1, 2, and 3
 draft: 
 tags:
   - SessionNotes
