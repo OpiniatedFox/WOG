@@ -1,6 +1,29 @@
 ---
-title: Welcome to Quartz
+title: Welcome to Generica
 ---
+I am building this because I thought it would be fun and also funny to have a whole little website for this stupid little world I am working on!!
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+### [[- Gods|Click Here to find the Gods]]
+
+...
+
+### [[- Factions|Click Here to find the Factions]]
+
+...
+
+### [[- Locations|Click Here to find all Locations]]
+
+...
+
+### [[- Noble Families|Click Here to find the Noble Families]]
+
+...
+
+### [[- Players|Click Here to see all Players]]
+
+...
+
+### [[-Sessions|Click Here to read up on session notes]]
+
+
+![[foxLogo.png]]
