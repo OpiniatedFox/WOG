@@ -6,6 +6,3 @@ tags:
   - Wizard
   - Wolfkin
 ---
-___
-
-WIP
