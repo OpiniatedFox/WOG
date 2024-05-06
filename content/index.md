@@ -14,8 +14,9 @@ ___
 ### [[- Locations|Click Here to find all Locations]]
 ___
 
+### [[- NPCs|Click Here to find all the NPC's you've met so far]]
 
-### [[- Noble Families|Click Here to find the Noble Families]]
+#### [[- Noble Families|Click Here to find the Noble Families]]
 ___
 
 

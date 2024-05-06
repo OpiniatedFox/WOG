@@ -8,6 +8,6 @@ ___
 
 All current Factions in the world
 - [[T.A.L.K]]
-- [[The Bandits of Heros]]
+- [[The Bandits of Heroes]]
 
 [[index|Go Back]]

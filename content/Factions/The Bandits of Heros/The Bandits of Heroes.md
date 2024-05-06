@@ -10,5 +10,6 @@ A group dedicated to helping and assisting low level adventurers as they feel as
 
 ## Current Members
 
-- [[Luke|Captin Luke]]
+- [[Luke|Captain Luke]]
 - [[Sir Nithalor Pensivous]]
+- [[Ben the Bandit]]
