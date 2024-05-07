@@ -17,4 +17,6 @@ tags:
 | Pronous | Age | Old Occupation     | Faith   | Current Adventurer Rank |
 | ------- | --- | ------------------ | ------- | ----------------------- |
 | He/Him  | 31  | Alligator Wrangler | Unknown | 3                       |
+___
+
 An odd monster hunter of sorts. If overconfidence had a picture you'd find his picture. Even through he seems tough and a bit of an ass, he does care about others, in his own way.

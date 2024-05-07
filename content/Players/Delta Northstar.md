@@ -17,4 +17,6 @@ tags:
 | Pronous | Age | Old Occupation | Faith                      | Current Adventurer Rank |
 | ------- | --- | -------------- | -------------------------- | ----------------------- |
 | He/Him  | 22  | Smuggler       | [[Ellae Goddess of Stars]] | 3                       |
+___
+
 A cocky wizard whose a bit of a squish. Likes to do most things alone, but when gets connect with others, will protect them under any circumstances. 

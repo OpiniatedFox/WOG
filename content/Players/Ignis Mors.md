@@ -17,4 +17,6 @@ tags:
 | Pronous | Age | Old Occupation | Faith   | Current Adventurer Rank |
 | ------- | --- | -------------- | ------- | ----------------------- |
 | He/Him  | 16  | Child          | Unknown | 3                       |
+___
+
 A child who seems to have found himself adventuring. Always seems to want to burn everything and gets jealous easily if he is left out of the burning.
