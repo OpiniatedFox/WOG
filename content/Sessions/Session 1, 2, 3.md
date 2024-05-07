@@ -150,3 +150,25 @@ The group head back to [[Old man Harvey]]'s home stealthily, and see the door op
 [[Dundee]] takes over and kicks down the door with ease. [[Delta Northstar]] being impatient and still not thinking clearly throws down the oil and lits it. Much to [[Swiver CaCaw]]'s dismay and failure to stop them.
 
 The group quickly heads down into the basement, but [[Ignis Mors]] stays behind to watch the flames.
+
+During the groups time in the basement, they find an organ and more importantly a chained up coffin and a rotting skeleton on the other side of the room. The 3 of them hears a voice crying coming out of the coffin, the same voice [[Dundee]] heard the first day he was there. 
+
+[[Dundee]] not knowing what to do at this point, attempts to mess with the organ, only for the voice to screech and knock out both [[Dundee]] and [[Delta Northstar]]
+
+[[Yanni]] appears, at this point finally finishing her business. She walks into the room to find [[Ignis Mors]], this being the first time they met. [[Yanni]] asks what's going on, but [[Ignis Mors]] ignores and heads into the basement where he heard the screech. [[Yanni]] follows suit.
+
+[[Swiver CaCaw]], [[Yanni]], and [[Ignis Mors]] heal the two where [[Swiver CaCaw]] explains what's going on. Pissed off, [[Delta Northstar]] leaves. Noticing the fire they started earlier getting worse and worse, telling them they have to go now.
+
+[[Dundee]] busts open the coffin, and sees the sprite of [[Ulisa]] begging for help. She tells them that she wants her father to be killed. They agree, before rushing out. Before [[Dundee]] can leave, she grabs ahold of him and tells him to please make sure he doesn't live and to save her.
+
+He agrees before leaving.
+
+[[Yanni]] leaves absolutely horrified of the ghost.
+
+The group reconvene outside his burning house. [[Ignis Mors]] enjoying the burning.
+
+They discuss what to do next, thinking about where [[Old man Harvey]] could be. They hear screaming coming from North East. [[Delta Northstar]] flies quickly over, leaving the others to just stand there, not knowing whats going on.
+
+[[Delta Northstar]] spots some members of [[The Bandits of Heroes]] being attacked, he flies down in an attempt to save [[Ben the Bandit]], but can't reach him without putting himself in danger.
+
+[[Delta Northstar]] flies back to get the others in hopes to save [[The Bandits of Heroes]]. unfortunately by the time they return to help all the members of [[The Bandits of Heroes]] are dead, expect for [[Ben the Bandit]], as he cowards in the corner surrounded by the undead.
